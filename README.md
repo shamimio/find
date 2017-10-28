@@ -1,0 +1,7 @@
+<article></article><input data="dot"><a href="https://tinyurl.com/y8mcufuq"><article>ma</article><article>n city  </article><article>v</article><article>s </article><article>west h</article><article>am  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
+<article></article><input data="dot"><a href="https://tinyurl.com/y8k3aonn"><article>ma</article><article>n city  </article><article>v</article><article>s </article><article>west h</article><article>am  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>  
+<article></article><input data="dot"><a href="https://tinyurl.com/ydbt4rah"><article>ma</article><article>n city  </article><article>v</article><article>s </article><article>west h</article><article>am  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>  
+
+
+ <article></article><input data="dot"><a href="https://tinyurl.com/y8qs4ldb"><article>arse</article><article>nal  </article><article>v</article><article>s </article><article>swans</article><article>ea city  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>  
+<article></article><input data="dot"><a href="https://tinyurl.com/y6wf6yzy">Texas vs Baylor  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input> 
